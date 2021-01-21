@@ -1,0 +1,1 @@
+Steps to make the recipe is take the banana nd peel it out next stir the milk and the final step is to put the banana and milk to the mixer and mix it.
